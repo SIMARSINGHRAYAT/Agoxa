@@ -1,1 +1,1 @@
-# Blipo
+https://gizmo-smzs.onrender.com
